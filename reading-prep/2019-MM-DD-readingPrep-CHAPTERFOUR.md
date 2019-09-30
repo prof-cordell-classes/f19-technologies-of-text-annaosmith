@@ -1,0 +1,12 @@
+# Reading Prep: CHAPTER FOUR
+
+#### Anna Smith
+
+## Questions or Observations
+
+1. In regards to the typography of David Walker’s “Appeal,” is changing the visual format of a piece of text akin to making drastic changes to its content? It's clear that Walker made very intentional decisions with his typography, so does a printer overstep by inserting himself into the writing this directly? This makes me think about how modern day designers take on a responsibility to the bodies of text that they typeset, in that the visual way text is represented definitely has an effect on the way it's received by the reader. 
+
+2. In the various texts that we've read, people continually associate new technologies with "sloth." Johannes Trithemius argued that printing is for lazy people who don't want to be scribes, and Leah Price remarks that "We fetishize books because we imagine that they can protect us from our distractability, our sloth, the weakness of will that the earliest monks called acedia" (Price 72). The point of technological advancement is to make certain tasks easier and more accessible. Why then do we rebel against advancements that make it easier to read books? Does this insinuate that there's still some hierarchical snobbery around who should be able to access certain books? E-books are economical and can be accessed instantaneously anywhere that the technology exists. Isn't it a good thing that writing in general can affordably be disseminated to wider audiences?
+
+3. I thought it was interesting that Emily Faithfull makes an argument not against women in print, but against people picking up the trade too late in their lives. She states that "Boys begin the business very young, and if women are to become compositors it must be under the same conditions" (Faithfull 40). I think this stood out to me because we tend to have a very different school of thought nowadays regarding picking up trades or skills later in life. While it's generally considered to be more difficult, it's often encouraged rather than disdained. Still, I see why this was a concern at this point, as people in this time period typically didn't have the free time to pick up hobbies once they had settled into a career or, in the case of women, a family. Overall, though, I felt that this article was refreshing to read when considered against other attitudes about women's capabilites in this time period. Though Faithfull wasn't about to hire women past a ccertain age, she was at least willing to consider them as viable options for apprenticeship.
+
