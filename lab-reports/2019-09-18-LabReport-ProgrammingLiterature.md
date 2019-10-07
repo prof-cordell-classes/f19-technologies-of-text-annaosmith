@@ -1,6 +1,6 @@
-# Lab Report: LAB NAME
+# Lab Report: PROGRAMMING LITERATURE
 
-#### YOUR NAME
+#### Anna Smith
 
 ## Process Description
 
