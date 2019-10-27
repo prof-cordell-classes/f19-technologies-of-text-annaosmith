@@ -1,6 +1,6 @@
-# Reading Prep: CHAPTER NAME
+# Reading Prep: Sensation
 
-#### YOUR NAME
+#### Anna Smith
 
 ## Questions or Observations
 
