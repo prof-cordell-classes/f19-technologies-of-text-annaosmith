@@ -1,0 +1,11 @@
+# Reading Prep: Algorithm
+
+#### Anna Smith
+
+## Questions or Observations
+
+1. As someone who doesn't read a lot of graphic novels, this format tends to throw me for a loop, at least at first. I found it a bit difficult to absorb the content in the beginning, but once I got into a groove, I really started to enjoy it. This made me think about how graphic novels tend to get a bad rap in the literary world, perhaps even more so than e-books or audiobooks. This graphic novel, however, felt very dense and cleverly put together. The use of text and imagery, both in the actual storyline and the footnotes, definitely feels worthy of being called a "book" in my opinion.
+2. Continuing on about the conjunction of text and image, I really appreciated the addition of the footnotes. Not only were they extremely helpful in providing historical context, but I loved the way that the characters interacted with these at times. 
+![Lovelace and Babbage image](/images/IMG_2004.png/)
+The characters broke the fourth wall at other points, referencing technologies that they would have had no way of knowing about. ![Lovelace and Babbage image](/images/ScreenShot1.png/) While the whole novel was set in this sort of "alternate reality" that allowed these breaches to occur, they were still really interesting, especially in light of what we've talked about in class.
+3. Graphic novels are a really interesting media to me because they require a very specific sort of close reading compared to prose. I feel like I have a tendency to skim graphic novels because I'm not really used to them, but I often have to go back a few pages to fill in the gaps that I missed by doing so. One section of this book that I particularly enjoyed was when Ada Lovelace reconnects with poetry and speculates about imaginary numbers. I love the play on perspective and use of space that really forces you to engage with each page. I was reading this in an e-book version, and I found myself tilting my head in order to follow Ada's movements through each page. Overall, though I don't tend to gravitate toward graphic novels, I'm really glad to have encountered this one and will likely go back and read the sections that we weren't assigned.
